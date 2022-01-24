@@ -23,6 +23,9 @@ BMI Categories:
   ![Screenshot (96)](https://user-images.githubusercontent.com/91648418/150713636-a1abfe72-b6c0-4c77-a05d-97a23ab7b704.png)
   
   
+  
+  ![Screenshot (97)](https://user-images.githubusercontent.com/91648418/150713854-39d7d3ea-7fff-4688-b092-49c080756c1c.png)
+  
 
 
 
